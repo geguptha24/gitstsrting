@@ -9,3 +9,6 @@ in this lockdown i start learning programming
 in first 3 month i learn c prgromamming
 
 and with this i recently bought mac book air on apple online 
+
+i very thankful to my mom and my dad 
+
